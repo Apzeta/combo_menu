@@ -3,7 +3,7 @@ A combo menu for anyone to look at change and then republish
 
          _nnnn_                      
         dGGGGMMb     ,"""""""""""""".
-       @p~qp~~qMb    | Linux Rules! |
+       @p~qp~~qMb    | Free code !! |
        M|@||@) M|   _;..............'
        @,----.JM| -'
       JS^\__/  qKL
